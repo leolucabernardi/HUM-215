@@ -1,0 +1,1 @@
+- War -> not like [[Athena]] of the strategy involved, rather of the brutality, violence and destruction

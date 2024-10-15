@@ -1,0 +1,7 @@
+- Biography risks psychologically defining the concept
+- Etymology is obvious though
+	- DEUS, DIVUS, DIVES, Dyaus Pitar (sanskrit)
+- *« Cela ne veut pas dire que [le·a Grec·que] croit que le ciel est Zeus, mais que certains caractères de ce ciel, le pouvoir qu’il exerce sur la vie humaine, constituent comme des voies à travers lesquelles la puissance de Zeus est rendue présente aux hommes. (…) Zeus est manifesté par le ciel, mais il est en même temps caché par lui. »*  Jean-Pierre Vernant, Mythe et société en Grèce ancienne, Paris, La Découverte, 1974, p. 106
+- Mode of action: POWER, SUPREAMCY
+- *« Et lorsque les dieux bienheureux eurent achevé leur tâche et réglé par la force leur conflit d’honneurs avec les Titans… Sur les conseils de Terre, ils pressèrent Zeus l’Olympien, au large regard, de prendre le pouvoir et de devenir Roi des Immortels, et ce fut Zeus qui leur répartit leurs honneurs (timai). »* siode, Théogonie, 881–886 (trad. Mazon)
+- 
